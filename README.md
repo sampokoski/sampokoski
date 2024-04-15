@@ -6,3 +6,7 @@ i swear ponytowners around gi area are so problematic no wonder there are alot o
 
 dc: _phulix 
 
+
+
+
+![kaveh](https://cdn.discordapp.com/attachments/741090201480331297/1229287784007729194/Untitled88_20240415123001.png?ex=662f2276&is=661cad76&hm=5f5f0fe0ee4770f7b353f15af21a56706379e4490fd94d7bdfee3fca31aa01a8&)
