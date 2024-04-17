@@ -9,4 +9,9 @@ dc: _phulix
 -- okay i find you really fucking weird and its giving loser aura from that response, first time seeing a weird ass kid? oh my god i really need to go to a pony town juvenile jail and apologize how WEIRD I AM. bro how could you even believe an anon pony that is clearly spreading rumours, and if you want to fuck up with me you shouldve interviewed MY FRIENDS how the WEIRD I AM around people. plus, i literally read everyone's long ass dni list and fucking decide not to interact with them. and did the fucking anon pony tell you that WHY i fucking enjoy incest? because one of my ships ARE FROM EGYPTIAN MYTHOLOGY. AND THIS IS HALF STUPID WHY WOULD YOU MAKE SOMEONE SPREAD THIS AND NOT PLAY PT ANYMORE. you legit fucking hate me internally plus YES I READ, your fucking obvious who you are atp,, if your saying as a GRAIN OF SALT why the fuck did you put it there without thinking people actually believe it 💀
 
 
+--YEAH OKAY WITH ANOTHER STUPID RESPONSE, how the hell your stated people there are problematic why dont you fuck around and make rentys because of me? does liking an insect ship AFFECTS MENTAL HEALTH TOWARDS ME OR OTHERS? And no, i wont fucking cry about something that is clearly made for hating against me, this made my friends lose theyr friends because they fucking believed it. And of course you scared asshole wont come back because your afraid of ARGUING. 
+
+## --again, FALSE FALSE FALSE PLEASE STOP BELIEVING SHIT THATS ON THE RENTRY MAKER'S "ExposingPhulix" RENTRY without MY FRIENDS CONFIRMING HOW WEIRD I AM. (im literally a loner i have only like 1-3 friends that i actually talk to...)
+
+
 ![kaveh](https://cdn.discordapp.com/attachments/741090201480331297/1229287784007729194/Untitled88_20240415123001.png?ex=662f2276&is=661cad76&hm=5f5f0fe0ee4770f7b353f15af21a56706379e4490fd94d7bdfee3fca31aa01a8&)
