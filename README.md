@@ -14,4 +14,6 @@ dc: _phulix
 ## --again, PLEASE STOP BELIEVING SHIT THATS ON THE RENTRY MAKER'S "ExposingPhulix" RENTRY without MY FRIENDS CONFIRMING HOW WEIRD I AM. (im literally a loner i have only like 1-3 friends that i actually talk to...)
 
 
-![kaveh](https://cdn.discordapp.com/attachments/741090201480331297/1229287784007729194/Untitled88_20240415123001.png?ex=662f2276&is=661cad76&hm=5f5f0fe0ee4770f7b353f15af21a56706379e4490fd94d7bdfee3fca31aa01a8&)
+![kaveh](https://cdn.discordapp.com/attachments/741090201480331297/1230584709021434068/Untitled88_20240419022318.png?ex=6633da51&is=66216551&hm=3d65824b846d39a29c4954a9244206a57d9d9da6d3e5de296c2acd80f7a2c10c&)
+
+
