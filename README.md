@@ -11,7 +11,7 @@ dc: _phulix
 
 --YEAH OKAY WITH ANOTHER STUPID RESPONSE, how the hell your stated people there are problematic why dont you fuck around and make rentys because of me? does liking an insect ship AFFECTS MENTAL HEALTH TOWARDS ME OR OTHERS? And no, i wont fucking cry about something that is clearly made for hating against me, this made my friends lose theyr friends because they fucking believed it. And of course you scared asshole wont come back because your afraid of ARGUING. 
 
-## --again, PLEASE STOP BELIEVING SHIT THATS ON THE RENTRY MAKER'S "ExposingPhulix" RENTRY without MY FRIENDS CONFIRMING HOW WEIRD I AM. (im literally a loner i have only like 1-3 friends that i actually talk to...)
+## --again, PLEASE STOP BELIEVING SHIT THATS ON THE RENTRY MAKER'S "ExposingPhulix" RENTRY without MY FRIENDS CONFIRMING THESE INFORMATION. (im literally a loner i have only like 1-3 friends that i actually talk to...)
 
 
 ![kaveh](https://cdn.discordapp.com/attachments/741090201480331297/1230584709021434068/Untitled88_20240419022318.png?ex=6633da51&is=66216551&hm=3d65824b846d39a29c4954a9244206a57d9d9da6d3e5de296c2acd80f7a2c10c&)
