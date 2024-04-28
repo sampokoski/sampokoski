@@ -16,4 +16,8 @@ dc: _phulix
 
 ![kaveh](https://cdn.discordapp.com/attachments/741090201480331297/1230584709021434068/Untitled88_20240419022318.png?ex=6633da51&is=66216551&hm=3d65824b846d39a29c4954a9244206a57d9d9da6d3e5de296c2acd80f7a2c10c&)
 
+# oh my gyatt!! what happened to the evidences! :(
+![image](https://github.com/sampokoski/sampokoski/assets/166921213/9bbd8408-26f1-4abc-be98-4a35f793f445)
+
+
 
