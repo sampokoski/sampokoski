@@ -1,5 +1,6 @@
 
 ## i moved my responses on a rentry so its not messy!! :3 https://rentry.co/response_to_exposing_phulix-rentry
+## pls check this one THANK YOU! https://rentry.co/phu-gone 
 
 # GUYS I PLAY ROBLOX PLSLSLSPSSL PLAY W ME
 
