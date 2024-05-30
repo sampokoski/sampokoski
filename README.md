@@ -4,5 +4,6 @@
 
 # GUYS I PLAY ROBLOX PLSLSLSPSSL PLAY W ME
 
-![image](https://github.com/sampokoski/sampokoski/assets/166921213/07313a7c-ec05-4176-b4ca-b8fc54623f47)
+![image](https://github.com/sampokoski/sampokoski/assets/166921213/c8bad291-b9ed-49c0-95b6-5f3d48bd6066)
+
 
