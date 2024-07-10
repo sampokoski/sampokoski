@@ -1,13 +1,9 @@
-![image](https://github.com/sampokoski/sampokoski/assets/166921213/55c45ecd-f809-42eb-8795-6b6161117550)
+![](https://cdn.discordapp.com/attachments/741090201480331297/1260633043505516615/Untitled143_20240711002520.png?ex=66900783&is=668eb603&hm=44c54be59d24bfca55a4bceb8f669b4bee592d08d19d31a3936de4a57c8552b4&)
 
-![image](https://github.com/sampokoski/sampokoski/assets/166921213/2ebf22fc-9f3f-41a3-b2a9-64b47ccd87ef)
+<a href="http://rentry.co/phulix_rentry"><img src="https://cdn.discordapp.com/attachments/741090201480331297/1260640644750377050/Untitled144_20240711005530.png?ex=66900e97&is=668ebd17&hm=c7a5ef0b4b3586923d4b62c7e3d07a8c856afb7f32f161694354ed5f528ecf2a&" alt="HTML tutorial" style="width:600px;height:200px;"></a>
 
-<p align="center">
-    <img width="800" src="https://github.com/sampokoski/sampokoski/assets/166921213/189add63-01fb-432d-a01a-44a888507b00" alt="as thoma">
-</p>
-
-
-![image](https://github.com/sampokoski/sampokoski/assets/166921213/be491b38-b415-4b95-b959-9e27fd590a5f)
+</body>
+</html>
 
 
 
