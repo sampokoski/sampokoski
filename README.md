@@ -6,7 +6,7 @@
 </p>
 
 
-<a href="http://rentry.co/phulix_rentry"><img src="https://cdn.discordapp.com/attachments/741090201480331297/1260640644750377050/Untitled144_20240711005530.png?ex=66900e97&is=668ebd17&hm=c7a5ef0b4b3586923d4b62c7e3d07a8c856afb7f32f161694354ed5f528ecf2a&" alt="HTML tutorial" style="width:1000px;height:400px;"></a>
+<a href="http://rentry.co/phulix_rentry"><img src="https://cdn.discordapp.com/attachments/741090201480331297/1260640644750377050/Untitled144_20240711005530.png?ex=66900e97&is=668ebd17&hm=c7a5ef0b4b3586923d4b62c7e3d07a8c856afb7f32f161694354ed5f528ecf2a&" alt="HTML tutorial" style="width:900px;height:400px;"></a>
 
 </body>
 </html>
