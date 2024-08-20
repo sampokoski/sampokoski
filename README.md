@@ -1,7 +1,5 @@
-![image](https://github.com/user-attachments/assets/27407af3-1129-43f2-be4e-1ca74717fc1c)
-
-
-
+# IM THIS MAGGOT. 
+![image](https://github.com/user-attachments/assets/e13ba52b-d678-4705-ae4c-0dc3fd9c7986)
 
 
 
