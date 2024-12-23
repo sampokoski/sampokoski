@@ -11,6 +11,14 @@
 # phulix w his wifey >w<
 ![image](https://github.com/user-attachments/assets/ae7717ea-3e2e-4957-b5ed-334b05e64423)
 
+from lemon lalala
+
+![image](https://github.com/user-attachments/assets/17e621e3-62e6-444e-820a-257c55ae2878)
+
+i srsly suck at drawing LMAO
+
+
+
 
 
 
