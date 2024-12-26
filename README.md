@@ -8,7 +8,12 @@
 # IM THIS MAGGOT.
 ![image](https://github.com/user-attachments/assets/ebf1b7f0-41d9-4cd0-a852-966c521b9af2)
 
+![image](https://github.com/user-attachments/assets/0e72fd77-7f71-468a-a490-12f6104d3191)
 
+by me
+
+
+phuphu n his lil edgy ass malewife
 
 
 
