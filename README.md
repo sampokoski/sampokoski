@@ -10,7 +10,7 @@ You'll never learn what you truly feel, won't you?
 BASIC INFO . fil/english , extroverted , i curse allat :< + i use my reclaimed slurs , dont take me srsly ~ >w<
 </p>
 <p align="center">
-DNI . basic dni , tut ponies , roleplays , exes/former friends , dont ask for inspo.
+DNI . basic dni , tut ponies , roleplays , exes/former friends , flirt jokes from strangers , never ask for inspo.
 </p>
 <p align="center">
 INTERESTS . hsr , jjba , cookie run , mbti , breaking bad/better call saul , big bang theory <3 , any piece of literature ! 
