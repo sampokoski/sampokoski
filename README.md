@@ -17,7 +17,10 @@ INTERESTS . hsr , jjba , cookie run , mbti , breaking bad/better call saul , big
 </p>
 <p align="center">
 INT . fellow fils , same interests , sampo/gepard fans wya !!?
-
+</p>
+<p align="center">
+more info on my rentry~
+</p>
 <p align="center">
   <img src="https://64.media.tumblr.com/21a53732769bf3cee39334c650b4ab0f/9d9dd727003dd0f9-90/s2048x3072/a69f742a484b6d2d29e8340a085949eaa13fe327.pnj"%7Bwidth=50px height=50px}/>
 </p>
