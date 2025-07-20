@@ -21,6 +21,35 @@ INT . fellow fils , same interests , sampo/gepard fans wya !!?
 <p align="center">
 more info on my rentry~
 </p>
+
 <p align="center">
   <img src="https://64.media.tumblr.com/21a53732769bf3cee39334c650b4ab0f/9d9dd727003dd0f9-90/s2048x3072/a69f742a484b6d2d29e8340a085949eaa13fe327.pnj"width=40px height=50px}/>
+</p>
+
+<p align="center">
+speacial mention!!!!
+(same person btw)
+</p>
+<p align="center">
+<img width="500" height="400" alt="image" src="https://github.com/user-attachments/assets/e6183686-1c93-4fa0-a8e3-461962bafea6" />
+</p>
+    
+<p align="center">
+<img width="500" height="400" alt="image" src="https://github.com/user-attachments/assets/9386f457-e730-45fa-8672-c2b2000b695c" />
+</p>
+
+<p align="center">
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/46973a86-3b3d-4785-90b5-77c1bca99fe1" />
+</p>
+
+<p align="center">
+i already confronted you about it dude and yet your still going with it, quit copying my style and go back to ur old ones :/ 
+</p>
+
+<p align="center">
+<img width="500" height="400" alt="image" src="https://github.com/user-attachments/assets/9a4fa9e3-aa6b-4da4-b0cd-2d5e3a958fb9" />
+</p>
+
+<p align="center">
+PLUS I ALREADY HID U RIGHT AFTER THAT. WHY THE HELL ARE YOU STILL GOING WITH THIS
 </p>
