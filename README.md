@@ -53,3 +53,11 @@ i already confronted you about it dude and yet your still going with it, quit co
 <p align="center">
 PLUS I ALREADY HID U RIGHT AFTER THAT. WHY THE HELL ARE YOU STILL GOING WITH THIS
 </p>
+
+<p align="center">
+<img width="400" height="600" alt="image" src="https://github.com/user-attachments/assets/822c82e7-cda9-4c70-95b1-58dc65c95f0c" />
+</p>
+
+<p align="center">
+ok what the fuck is this
+</p>
