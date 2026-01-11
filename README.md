@@ -4,5 +4,5 @@
 
 
 <p align="center">
-im semi active i rlly dont play pt anymore (unless my friends want me to) anyway. pls dont fucking stalk me on everysocials T_T nor find out what happened to me, JSUT PRIVACY YO!! if u wanna contact me heres my discord: sharkstreasure JUST PLEASE DONT DIG MORE ABT MYSLEF PERSONALLY THANKSS. im more more more active on roblox (ohfreak123) feel free to friend i dunt bite ^_^
+im semi active i rlly dont play pt anymore (unless my friends want me to) anyway. pls dont fucking stalk me on pt and everysocials T_T (AIMED LOL) nor find out what happened to me, JSUT PRIVACY YO!! if u wanna contact me heres my discord: sharkstreasure JUST PLEASE DONT DIG MORE ABT MYSLEF PERSONALLY THANKSS. im more more more active on roblox (ohfreak123) feel free to friend i dunt bite ^_^
 </p>
