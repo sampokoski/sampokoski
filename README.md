@@ -6,3 +6,11 @@
 <p align="center">
 im semi active i rlly dont play pt anymore (unless my friends want me to) anyway. pls dont fucking stalk me on pt and everysocials T_T (AIMED LOL) nor find out what happened to me, JSUT PRIVACY YO!! if u wanna contact me heres my discord: sharkstreasure JUST PLEASE DONT DIG MORE ABT MYSLEF PERSONALLY THANKSS. im more more more active on roblox (ohfreak123) feel free to friend i dunt bite ^_^
 </p>
+
+<p align="center">
+<img width="738" height="457" alt="image" src="https://github.com/user-attachments/assets/fbb42e16-991e-4622-8aa8-7e1870ca5821" />
+</p>
+
+<p align="center">
+bruh im crine whimsical smp so fucking cooked
+</p>
