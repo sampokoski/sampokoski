@@ -14,3 +14,11 @@ im semi active i rlly dont play pt anymore (unless my friends want me to) anyway
 <p align="center">
 bruh im crine whimsical smp so fucking cooked
 </p>
+
+<p align="center">
+<img width="435" height="245" alt="image" src="https://github.com/user-attachments/assets/a5ed5b38-d939-4934-ad27-99908cc07a04" />
+</p>
+
+<p align="center">
+ok try color picking me now bruh
+</p>
